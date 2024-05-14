@@ -3,10 +3,10 @@
 
 Olá! 
 
-Sou Amanda, tenho 35 anos, mãe do Matheus e da Alice ❤
+Sou Amanda, tenho 35 anos, mãe solo do Matheus e da Alice ❤
 
-Apaixonada por tecnologia, com uma trajetória profissional nada linear, sempre me vi voltada para a área de humanas, tenho espírito empreendedor e experiência em diferentes áreas de negócio, amo ajudar as pessoas e solucionar problemas de forma prática e criativa. 
-Há pouco mais de um ano, resolvi criar coragem e "mergulhar de cabeça" nesse processo de aprendizado tão desafiador e empolgante da tecnologia. Atualmente estou cursando bacharelado em Inteligência Artificial e entusiasmada com a possibilidade de contribuir com projetos inovadores.
+Apaixonada por inovação e com uma trajetória profissional nada linear, tenho espírito empreendedor e experiência em diferentes áreas de negócio. Amo ajudar as pessoas e costumo solucionar problemas de forma prática e criativa. 
+Com a pandemia e o nascimento da minha filha, resolvi criar coragem e "mergulhar de cabeça" nesse processo de aprendizado tão desafiador e empolgante da tecnologia, com o objetivo de buscar novos desafios e de transformar a realidade da minha família. Atualmente estou cursando bacharelado em Inteligência Artificial e entusiasmada com a possibilidade de contribuir com projetos inovadores.
 
 
 ## Conecte-se comigo
